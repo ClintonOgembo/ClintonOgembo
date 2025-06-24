@@ -5,7 +5,7 @@
 - 📫   You can reach me via my linkedin account link: https://www.linkedin.com/in/clinton-ogembo-4a353b307/
 -   Or via email: clintonogembo70@gmail.com
 -   My Portfolio: https://my-portfolio-pink-six-40.vercel.app/
-- 😄 Pronouns: ...
+- 😄 Pronouns: He/Him
 - ⚡ Fun fact: ...
 
 <!---
